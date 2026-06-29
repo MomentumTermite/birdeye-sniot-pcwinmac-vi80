@@ -1,4 +1,4 @@
-# 
+# Léger birdeye sniper bot préréglages pour Mac OS | Top birdeye sniper bot préréglages pour PC Windows. Avec indexation de la blockchain et endpoints RPC privés — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
